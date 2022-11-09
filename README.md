@@ -1,1 +1,1 @@
-![Alternate image text](https://wichitaedu-my.sharepoint.com/personal/y943z365_wichita_edu/_layouts/15/onedrive.aspx?id=%2Fpersonal%2Fy943z365%5Fwichita%5Fedu%2FDocuments%2FSample%2Epng&parent=%2Fpersonal%2Fy943z365%5Fwichita%5Fedu%2FDocuments&ga=1)
+
